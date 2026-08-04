@@ -11,9 +11,9 @@
 
 ──── ୨୧ ────
 
-<img src="https://pixelsafari.neocities.org/favicon/horror/skull9.gif"/> Null or V1, any prns & unlabeled . 4teen & yumeshipper . <img src="https://pixelsafari.neocities.org/favicon/horror/weapon3.gif" width="25"/>
+<img src="https://pixelsafari.neocities.org/favicon/horror/skull9.gif"/> Null/V1/Swerve , any prns & unlabeled . minor & yumeshipper . <img src="https://pixelsafari.neocities.org/favicon/horror/weapon3.gif" width="25"/>
 
-i share all my yumes ^_^
+i share all my yumes and any fictkins dbls can int ^_^
 
 <img src="https://gifcity.carrd.co/assets/images/gallery43/f78ad0cd.gif?v=3fc8f5cd"/>
 
