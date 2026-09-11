@@ -1,21 +1,23 @@
 
 <div align="center">
  
-# <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=BB0000&width=435&lines=Soul+mate%2C+enemy%2C+have+it+your+way;im+open-minded%2C+choose+ur+game." alt="Typing SVG" /></a>
+#  [![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=22&duration=2500&pause=1000&color=F74C4C&width=435&lines=%22lies+are+a+funny+thing%2C;they+slip+through+ur+fingertips%2C;because+they+never+happened+to+you.%22)](https://git.io/typing-svg)
 
-<img src="https://gifcity.carrd.co/assets/images/gallery39/c81a92f4.gif?v=3fc8f5cd" width="760" alt="image"/>
+<img src="https://64.media.tumblr.com/346bd3760bcbabac84daf229ac89af97/92d26ae36e95ebe0-d2/s400x600/ed5013d924aa0bfb15c22a6cd954d102bad5a755.pnj" width="760" alt="image"/>
 
 
 
-<img src="https://cdn.imgchest.com/files/989f6a81a210.png" width="490" alt="image"/>
+<img src="https://cdn.imgchest.com/files/146dd6b2a84d.png" width="550" alt="image"/>
 
 ──── ୨୧ ────
 
-<img src="https://pixelsafari.neocities.org/favicon/horror/skull9.gif"/> Null/V1/Swerve , any prns & unlabeled . minor & yumeshipper . <img src="https://pixelsafari.neocities.org/favicon/horror/weapon3.gif" width="25"/>
+<img src="https://pixelsafari.neocities.org/favicon/horror/skull9.gif"/> Null/V1/Swerve , any prns & unlabeled . minor & yumeshipper . <img src="https://cdn.imgchest.com/files/69d1f4fdb879.png" width="25"/>
 
 i share all my yumes and any fictkins dbls can int ^_^
 
-<img src="https://gifcity.carrd.co/assets/images/gallery43/f78ad0cd.gif?v=3fc8f5cd"/>
+cough im remaking dis ok...
+
+<img src="https://64.media.tumblr.com/0215189d037c04f44cbd10e8637f4848/38e2d0e56599b29f-aa/s400x600/ec178489b40e5245eaab4a466043938c8b081f78.pnj"/>
 
 <br><br>
 
