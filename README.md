@@ -21,11 +21,11 @@ i share all my yumes and any fictkins dbls can int ^_^
 
 <br><br>
 
-![Badge](https://img.shields.io/badge/ANARCHY-.-red) ![Badge](https://img.shields.io/badge/BAIT&-SWITCH-black) ![Badge](https://img.shields.io/badge/READYTO-BLOW.-red)
+![Badge](https://img.shields.io/badge/lost-light-red) ![Badge](https://img.shields.io/badge/Swerves-Bar-blue) ![Badge](https://img.shields.io/badge/yaoi-time.-red)
 
 <br>
 
-<br><br> <img src="https://i.pinimg.com/originals/4c/7e/13/4c7e13d84e62e075a2875ad1e07519dc.gif" width="510"/>
+<br><br> <img src="https://cdn.imgchest.com/files/9e4d6a9d5caa.jpg" width="510"/>
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qs3aqxf5vgj3zwthqqrhi7uh6q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
