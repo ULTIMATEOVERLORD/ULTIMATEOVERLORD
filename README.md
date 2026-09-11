@@ -9,13 +9,17 @@
 
 <img src="https://cdn.imgchest.com/files/146dd6b2a84d.png" width="550" alt="image"/>
 
+
+$\color{#E66764}{\textsf{creds 2 my goat}}$ $\color{#C84745}{\textsf{BluuJayymes for}}$ $\color{#8C312F}{\textsf{the supa cool graphic !!!}}$
+
+
 ──── ୨୧ ────
 
-<img src="https://pixelsafari.neocities.org/favicon/horror/skull9.gif"/> Null / V1 / Swerve , any n all prns & unlabeled . minor & yumeshipper . <img src="https://cdn.imgchest.com/files/69d1f4fdb879.png" width="25"/>
+<img src="https://pixelsafari.neocities.org/favicon/horror/skull9.gif"/> $\color{#E66764}{\textsf{Null / V1 / Swerve .}}$ $\color{#C84745}{\textsf{Any/All prns, minor .}}$ $\color{#8C312F}{\textsf{fictkin + yumeshipper .}}$ <img src="https://cdn.imgchest.com/files/69d1f4fdb879.png" width="25"/>
 
-i share all my yumes and any fictkins dbls can int ^_^
+$\color{#E66764}{\textsf{i share all}}$ $\color{#C84745}{\textsf{my yumes and}}$ $\color{#8C312F}{\textsf{fictkin dbls can int !}}$
 
-<img src="https://cdn.imgchest.com/files/83cca4abb90c.png" width="25"/> THE n1 swervegate & swagmus shipper EVER <img src="https://cdn.imgchest.com/files/233be7cd6dda.png" width="25"/>
+<img src="https://cdn.imgchest.com/files/83cca4abb90c.png" width="25"/> $\color{#E66764}{\textsf{THE n1}}$ $\color{#C84745}{\textsf{swervegate and swagmus}}$ $\color{#8C312F}{\textsf{shipper EVER}}$ <img src="https://cdn.imgchest.com/files/233be7cd6dda.png" width="25"/>
 
 <img src="https://64.media.tumblr.com/0215189d037c04f44cbd10e8637f4848/38e2d0e56599b29f-aa/s400x600/ec178489b40e5245eaab4a466043938c8b081f78.pnj"/>
 
