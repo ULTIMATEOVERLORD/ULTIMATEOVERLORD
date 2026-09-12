@@ -13,7 +13,7 @@
 $\color{#E66764}{\textsf{creds 2 my goat}}$ $\color{#C84745}{\textsf{BluuJayymes for}}$ $\color{#8C312F}{\textsf{the supa cool graphic !!!}}$
 
 
-──── ୨୧ ────
+<img src="https://64.media.tumblr.com/0215189d037c04f44cbd10e8637f4848/38e2d0e56599b29f-aa/s400x600/ec178489b40e5245eaab4a466043938c8b081f78.pnj"/>
 
 <img src="https://pixelsafari.neocities.org/favicon/horror/skull9.gif"/> $\color{#E66764}{\textsf{Null / V1 / Swerve .}}$ $\color{#C84745}{\textsf{Any/All prns, minor .}}$ $\color{#8C312F}{\textsf{fictkin + yumeshipper .}}$ <img src="https://cdn.imgchest.com/files/69d1f4fdb879.png" width="25"/>
 
